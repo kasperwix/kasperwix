@@ -2,7 +2,7 @@
 
 ---
 
-> Ikue Ohtani — Neko no Kimochi [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=500&color=9F2427&width=435&lines=Please+stop+comparing+the+length+of+my+tail+to+other+cats';my+tail+to+other+cats'.;It+hurts+my+feelings%2C+you+know.;For+you%2C+we+keep+our+bodies+inshape%2C;and+our+fur+in+place.;So%2C+please+stop+brushing;us+the+wrong+way!)](https://git.io/typing-svg)
+> Ikue Ohtani — Neko no Kimochi (..^ w ^..) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=500&color=9F2427&width=435&lines=Please+stop+comparing+the+length+of+my+tail+to+other+cats';my+tail+to+other+cats'.;It+hurts+my+feelings%2C+you+know.;For+you%2C+we+keep+our+bodies+inshape%2C;and+our+fur+in+place.;So%2C+please+stop+brushing;us+the+wrong+way!)](https://git.io/typing-svg)
 
 ---
 

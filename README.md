@@ -1,6 +1,6 @@
 <sub><sup> quick disclaimer ! im very socially awkward around strangers and if im late to respond to ur whisper its me either thinking how to respond and not overdo the response OR im afk & i didnt see your whisper ,, im not ignoring you on purpose ok </sup></sub> 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![image title](https://rushter.com/counter.svg)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![t](https://komarev.com/ghpvc/?username=kasperwix&color=red)
 
 <img width="736" height="474" alt="image" src="https://github.com/user-attachments/assets/8e64a386-36ee-49c6-bd4f-95269f82e1f2" />
 
@@ -20,3 +20,5 @@
 <sub><sup>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀byi; </sup></sub> 
 
 <sub><sup>⠀⠀⠀⠀⠀⠀as mentiondabove im socially awkward and if you wanna bemy freaind i usually dontmind (unless i do) but i wontbe too chatty unless i know youwell. i may come off asrude sometimes also but i dont mean it,, ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i amm very unstable&incostant as my mood and condition,, iamnot givenproper help bcs of my stupid mom</sup></sub>
+
+![image title](https://rushter.com/counter.svg)

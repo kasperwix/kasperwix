@@ -1,6 +1,6 @@
 <sub><sup> quick disclaimer ! im very socially awkward around strangers and if im late to respond to ur whisper its me either thinking how to respond and not overdo the response OR im afk & i didnt see your whisper ,, im not ignoring you on purpose ok </sup></sub> 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![t](https://komarev.com/ghpvc/?username=kasperwix&color=red)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![t](https://komarev.com/ghpvc/?username=kasperwix&color=red)
 
 <img width="736" height="474" alt="image" src="https://github.com/user-attachments/assets/8e64a386-36ee-49c6-bd4f-95269f82e1f2" />
 

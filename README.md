@@ -20,5 +20,3 @@
 <sub><sup>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀byi; </sup></sub> 
 
 <sub><sup>⠀⠀⠀⠀⠀⠀as mentiondabove im socially awkward and if you wanna bemy freaind i usually dontmind (unless i do) but i wontbe too chatty unless i know youwell. i may come off asrude sometimes also but i dont mean it,, ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i amm very unstable&incostant as my mood and condition,, iamnot givenproper help bcs of my stupid mom</sup></sub>
-
-![image title](https://rushter.com/counter.svg)

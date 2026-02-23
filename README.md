@@ -44,7 +44,7 @@
 3. dnc in mypony's name alwaysmeans Do Not Cover ,,i dislike being covered any time even if not stated in name UNLESS c+h withmy friends/partner 
 4. ask 4inspo ,,do not inspo my skinsof my fictionlinks ,, dont copy ,,i dont mindfriends taknig inspo!!!
 5. I Hide Freely, Never Permanently Though. Do Not Hide Me Fully & Permanently So I Can Avoid Covering You/Vice Versa.
-6. i act Slightly Biased when some1 witha skin ofmy fictionlink interacts withme ,, UNLESS UR MY FRIEND !!!
+6. i'll have a Slightly Negative Opinion when some1 witha skin ofmy fictionlink interacts withme ,, UNLESS UR MY FRIEND !!!
 
 </details>
 </div>

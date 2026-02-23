@@ -22,7 +22,8 @@
 
 <summary> byi ; </summary>
 
-1. as mentiondabove im socially awkward and if you wanna bemy freaind i usually dontmind (unless i do) but i wontbe too chatty unless i know youwell. i may come off asrude sometimes also but i dont mean it,, i amm very unstable&incostant as my mood and condition,, iamnot givenproper help bcs of my stupid mom
+1. as mentiondabove im socially awkwardand anxious and if you wanna bemy freaind i usually dontmind (unless i do) but i wontbe too chatty unless i know youwell. i may come off asrude sometimes also but i dont mean it,, i amm very unstable&incostant as my mood and condition,, iamnot givenproper help bcs of my stupid mom
+2. ^ despite that idont mind new frien..d,,s imusually too scared thouhg..
 2. i possiblyhave mdd & adhd ,, ihave gone to specialists and theyhave told me i mayhav thossedisorders
 3. plse use tonetags when interactin g wuth me  
 4. i speakboth english(c2 level) &russian(native lang) fluentlydespite my main language beingrussian so.okICan Talk English Words. also i makegrammatic mistakes in bothlanguages b cs ifind it funny

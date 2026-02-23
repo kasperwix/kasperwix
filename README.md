@@ -1,3 +1,5 @@
+# Hey currently dni (uf) becausaeim in a bad mentalsta,te,bye ok
+
 <sub><sup> quick disclaimer ! im very socially awkward around strangers and if im late to respond to ur whisper its me either thinking how to respond and not overdo the response OR im afk & i didnt see your whisper ,, im not ignoring you on purpose ok </sup></sub> 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![t](https://komarev.com/ghpvc/?username=kasperwix&color=red)

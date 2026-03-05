@@ -45,8 +45,8 @@
 
 1. tags --> https://ponytown.fandom.com/wiki/Name_Tag_Dictionary
 1. ALWAYS w2int unless youare my friend(ifstated tha imafk pleasedo whisper tho!) , or iam actively moving/texting,,, imususally offtab/afk so imay not seeyour msg in local/ boop orany othr interact that isnot in whisper
-2. sleep action= afk ,, 
-2. 🌙 = s-afk/offtab , w2i , late resp ,, 🟢/💬 = int unless statedotherwise ,, ⛔ = afk dniuf/p , w2i no resp>late resps 
+2. sleep action= afk ,,
+2. 🌙 = s-afk/offtab , late resp ,, 🟢/💬 = int unless statedotherwise ,, ⛔ = afk dniuf/p + dntuf/p , w2i no resp>late resps 
 2. imscared to c+h with peoople thatidk but ask me to c+h,, unless im alr sitting w/ some1, 
 3. dnc in mypony's name alwaysmeans Do Not Cover ,,i dislike being covered any time even if not stated in name UNLESS c+h withmy friends/partner 
 4. ask 4inspo ,,do not inspo my skinsof my fictionlinks ,, dont copy ,,i dont mindfriends taknig inspo!!!
